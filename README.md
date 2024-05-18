@@ -8,7 +8,7 @@
   
 -    Fun fact: I'm an anime head 😄
   
-[Linkedin](https://www.linkedin.com/in/yusuf-yunusa-348735253/)
+     [Linkedin](https://www.linkedin.com/in/yusuf-yunusa-348735253/)
 
 
 <!---
